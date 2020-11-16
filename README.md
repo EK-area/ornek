@@ -1,2 +1,2 @@
 # -rnek-
-örnek
+Vahit babacım örnek dosya burda bakablirsin
