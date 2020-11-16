@@ -1,2 +1,2 @@
 # -rnek-
-Vahit babacım örnek dosya burda bakablirsin
+Vahit babacım örnek dosya mova rar dosyası yukarda  bakablirsin
